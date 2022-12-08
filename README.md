@@ -2,7 +2,7 @@
 
 I am a full-stack software enginner with a passion to create and solve problems in a creative fasion. I enjoy cycling and playing baseball with kids.
 
-Five years of experience as a licensed pharmacist, Ph.D student in chemistry, research and teaching assistant in organic chemistry.
+Five years of experience as a licensed pharmacist, former Ph.D student in chemistry, and former teaching assistant in organic chemistry.
 
 ***
 
